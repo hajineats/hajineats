@@ -2,6 +2,3 @@
 
 🤝
 
-wait fistbump
-
-🤜🤛
